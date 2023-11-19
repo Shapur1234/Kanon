@@ -1,2 +1,0 @@
-# Kanon
-Kánon k maturitě
